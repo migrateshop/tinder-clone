@@ -60,7 +60,7 @@ With our **[Tinder clone app](https://migrateshop.com/tinder-clone-script/)**, y
 
 If you're a skilled developer seeking to launch your app or a new entrepreneur with an idea for the next major development in online dating, **[Migrateshop's](https://migrateshop.com/)** Tinder clone script offers the tools and support you need to turn your ideas into reality. With dedication, innovation, and a commitment to providing value to your users, the possibilities are limitless. So, why keep waiting? Begin creating your dream dating app today with our **[Tinder clone script](https://migrateshop.com/tinder-clone-script/)** and start on an adventure that will transform the way people find love and companionship in the digital era.
 
-Get started on your app-building journey with Our **LIVE DEMO** today- **https://migrateshop.com/tinder-clone-script/**
+Get started on your app-building journey with Our **LIVE DEMO** today- **https://migrateshop.com/tinder-clone-script/#demo**
 
 **Join With Us,**
 
